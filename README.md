@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @MeshwaJivrani
 - 👀 I’m interested in canva pro
-- 🌱 I’m currently learning in 8th standard
+- 🌱 I’m currently learning in sketching
 - 📫 You can reach me by sending me a mail on jivranimeshwa9@gmail.com
 
 <!---
